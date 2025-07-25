@@ -1,0 +1,1 @@
+# sald-o-informatica
